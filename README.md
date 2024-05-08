@@ -1,3 +1,7 @@
 ![CarbonTab1](https://github.com/algotrader2023/CarbonTab/assets/121079358/5bb5c91f-778f-4355-a3e1-2745ff1ada17)
 ![CarbonTab3](https://github.com/algotrader2023/CarbonTab/assets/121079358/3d2e210c-f5bb-46e2-bee0-6758faab6aec)
 ![CarbonTab2](https://github.com/algotrader2023/CarbonTab/assets/121079358/2486a9fb-1d98-4d5b-8c1a-a529e317951a)
+![CarbonTab7](https://github.com/algotrader2023/CarbonTab/assets/121079358/f2cdb43a-4f0f-416e-96b6-e164585df53e)
+![CarbonTab6](https://github.com/algotrader2023/CarbonTab/assets/121079358/aad2956a-6626-4870-8294-9122ded23417)
+![CarbonTab5](https://github.com/algotrader2023/CarbonTab/assets/121079358/29247bb0-db8b-4f5e-8b2a-c620145c369c)
+![CarbonTab4](https://github.com/algotrader2023/CarbonTab/assets/121079358/bacb4a96-115c-45b1-a4f8-068c165f0174)
